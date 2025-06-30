@@ -1,0 +1,2 @@
+# KairozLootz
+QUALITY OVER QUANTITY 
